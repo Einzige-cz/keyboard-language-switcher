@@ -57,7 +57,7 @@ paypal.me/KonstantinLiubchich
 ## Contact
 
 Created by Einzige-cz.
-
+https://www.linkedin.com/in/konstantin-liubchich/
 Contact: einzige.cz@gmail.com
 
 GitHub:
